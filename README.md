@@ -1,7 +1,7 @@
 - 👋  @Neeklaus-Mikaelson(Ankur Goswami)
 - 👀 I’m interested in UI Designs.
 - 🌱 I’m currently learning FrontEnd Developement
-- 💞️ I’m looking to collaborate on Awesome and Streamlined UI Responsve Applications or Websites.
+- 💞️ I’m looking to collaborate on Awesome and Streamlined UI Responsive Web Applications or Websites.
 - 📫 How to reach me =>
   Email - ankurggoswami80@gmail.com
   EMAIL ME YOUR NUMBER, LET'S MEET AND DISCUSS OUR NEXT JOINT PORJECT OVER COFFEE, AND I LOVE TO GO TO STARBUCKS....
