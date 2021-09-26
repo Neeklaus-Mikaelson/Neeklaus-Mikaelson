@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Awesome and Streamlined UI Responsive Web Applications or Websites.
 - 📫 How to reach me =>
   Email - ankurggoswami80@gmail.com
-  EMAIL ME YOUR NUMBER, LET'S MEET AND DISCUSS OUR NEXT JOINT PORJECT OVER COFFEE, AND I LOVE TO GO TO STARBUCKS....
+  EMAIL ME YOUR NUMBER, LET'S MEET AND DISCUSS OUR NEXT JOINT PROJECT OVER COFFEE, AND I LOVE TO GO TO STARBUCKS....
 
 <!---
 Neeklaus-Mikaelson/Neeklaus-Mikaelson is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
